@@ -1,4 +1,3 @@
--- INFO --
 Here are a couple of mods for GTag.
 Paid menus are here too, that you can use for free!
 Enjoy the mods!
